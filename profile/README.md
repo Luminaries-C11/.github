@@ -1,3 +1,3 @@
 # Luminaries
 
-**The Cohort that was never meant to be...**
+**Best Cohort Ever...**
